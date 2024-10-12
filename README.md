@@ -1,2 +1,2 @@
-# materi-github
-# hy aku anisah octa
+1. bukang
+2. slayer
